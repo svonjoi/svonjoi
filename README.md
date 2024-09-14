@@ -90,11 +90,4 @@
                        J'`.`.`.`.`.`.`.`.`.`.`.`?).`.`.`.`.`.`.`.`.`.`.`.3
                      j"`.`.`.`.`.`.`.`.`.`.`.`.`.h.`.`.`.`.`.`.`.`.`.`.`.3
                    ,P`.`.`.`.`.`.`.`.`.`.`.`.`.`.$.`.`.`.`.`.`.`.`.`.`.`.3
-Kludgeonsmith
-
-------------------------------------------------
-Thank you for visiting https://asciiart.website/
-This ASCII pic can be found at
-https://asciiart.website/index.php?art=people/naked%20ladies
-
 ```
